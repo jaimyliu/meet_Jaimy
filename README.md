@@ -5,7 +5,7 @@
 
 📫 如何聯絡我: jaimy51606@gmail.com
 
-📄 了解我的經歷: https://meetjeff.github.io](https://jaimyliu.github.io/MeetJaimy/
+📄 了解我的經歷: https://jaimyliu.github.io/MeetJaimy/
 
 
 
